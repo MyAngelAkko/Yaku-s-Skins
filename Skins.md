@@ -40,4 +40,4 @@
 
 # [Skill Re](https://puu.sh/Dl3Th/4d32c4e9d0.osz)
 
-# [Black tights1.2(https://www.reddit.com/r/OsuSkins/comments/b5mwvj/skinr15_nsfwjust_a_bit_r15_elementsmay_be_%CA%96_black/)
+# [Black tights1.2](https://www.reddit.com/r/OsuSkins/comments/b5mwvj/skinr15_nsfwjust_a_bit_r15_elementsmay_be_%CA%96_black/)
