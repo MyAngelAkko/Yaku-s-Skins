@@ -7,7 +7,7 @@
 # [Get top 50 PT](https://osu.ppy.sh/rankings/osu/performance?country=PT)
 
 
-
+# [2]
 # [Get 6k pp](https://osu.ppy.sh/users/10006689)
 
 
