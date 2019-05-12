@@ -43,3 +43,5 @@
 # [Black tights1.2](https://www.reddit.com/r/OsuSkins/comments/b5mwvj/skinr15_nsfwjust_a_bit_r15_elementsmay_be_%CA%96_black/)
 
 # [Code Zero Two](https://www.reddit.com/r/OsuSkins/comments/7xp2hy/code_zero_two/)
+
+# [Rafis 2018-03-26 HDDT](https://circle-people.com/wp-content/Skins/Rafis/Rafis%202018-03-26%20HDDT.osk)
