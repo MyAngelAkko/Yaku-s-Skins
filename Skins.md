@@ -47,3 +47,5 @@
 # [Rafis 2018-03-26 HDDT](https://circle-people.com/wp-content/Skins/Rafis/Rafis%202018-03-26%20HDDT.osk)
 
 # [Angelsim 2017-08-10](https://circle-people.com/wp-content/Skins/firebat92%20(Angelsim)/Angelsim%202017-08-10.osk)
+
+# [Angelsim 2017-08-12](https://circle-people.com/wp-content/Skins/firebat92%20(Angelsim)/Angelsim%202017-08-12.osk)
