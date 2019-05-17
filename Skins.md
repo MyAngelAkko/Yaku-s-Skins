@@ -45,3 +45,5 @@
 # [Code Zero Two](https://www.reddit.com/r/OsuSkins/comments/7xp2hy/code_zero_two/)
 
 # [Rafis 2018-03-26 HDDT](https://circle-people.com/wp-content/Skins/Rafis/Rafis%202018-03-26%20HDDT.osk)
+
+# [Angelsim 2017-08-10](https://circle-people.com/wp-content/Skins/firebat92%20(Angelsim)/Angelsim%202017-08-10.osk)
