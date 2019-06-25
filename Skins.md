@@ -53,3 +53,5 @@
 # [Mathi](https://puu.sh/wvSc8.osk)
 
 # [owotuna](https://www.mediafire.com/folder/ccb566dfz92hi/#ccb566dfz92hi)
+
+# [Slime-Kun](http://skins.osuck.net/index.php?newsid=698)
